@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 - 😄 Pronouns: he
-- ⚡ Fun fact: I'm never fliirt 😏 
+- ⚡ Fun fact: I never fliirt 😏 
