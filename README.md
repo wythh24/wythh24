@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 - 😄 Pronouns: he
-- ⚡ Fun fact: I never fliirt 😏 
+- ⚡ Fun fact: smile with small eye 😏 
